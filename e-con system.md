@@ -1,3 +1,6 @@
+leason learned ( rejected)
+
+
 SVCET Pooled Placement Drive - E-con Systems
 
 Greetings from Sri Venkateshwaraa College of Engineering & Technology, Puducherry!
