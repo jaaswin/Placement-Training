@@ -1,5 +1,7 @@
 # Edveon Technologies: Complete Student Job Preparation Guide
 
+assessment done !
+
 ![Contact Edveon - Expert Chip Development Services | Edveon](https://images.openai.com/static-rsc-4/65Sq_ISq7VST6HgwXjHxTysucv0m4ZG3v1Gt46eLaszUrOxyhOrvJh4uy3g_6DOctMLqGGtG_D1fr8GZzZaN2JVwRP6nfznozfdZ4-MEYWC22fJx8Hv-0Ocza9x_2z3m6VMRrjNu4srybH5dDrDslVnyN8csB0hO1ckBAzKCUjk?purpose=inline)
 
 
